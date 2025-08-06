@@ -44,7 +44,7 @@ I'm currently building a solid foundation in AI and Machine Learning through pro
 
 ## 📫 Get in Touch
 
-- 🌐 [LinkedIn](http://linkedin.com/in/aitor-gonzalo-03377936b)  
+- 🌐 [LinkedIn](https://www.linkedin.com/in/aitor-gonzalo-03377936b?trk=contact-info)  
 - 📧 agonzalo021@ikasle.ehu.eus
   
 
